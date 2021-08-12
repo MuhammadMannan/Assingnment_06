@@ -1,1 +1,1 @@
-# Assinment_06
+# Assignnment_06
